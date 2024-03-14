@@ -1,5 +1,5 @@
 # 김준범 Junbeum Kim
-[Learn more about me](https://impartial-text-c23.notion.site/f06a9983f11144ed8a73df001283d390?pvs=4)
+[Learn more about me](https://jbkim0526.notion.site/f06a9983f11144ed8a73df001283d390?pvs=4)
 
 ## Education
 2015.03 ~ 2018.02: Sejong Science High School  
